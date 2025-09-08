@@ -8,7 +8,7 @@
 
 [Here Comes Your Man-Pixies](https://open.spotify.com/album/29WKZM3pAn93NpOCAivGf7?si=4Zc2zxQ7QTWm9e4VlMaaSQ)
 
-[Dirty-Sonic Youth] (https://open.spotify.com/intl-pt/album/7oNRvhXwhNCfHEUGER5EhG?si=OVNbXSO_T5OJG-POcOcOjA)
+[Dirty-Sonic Youth](https://open.spotify.com/intl-pt/album/7oNRvhXwhNCfHEUGER5EhG?si=OVNbXSO_T5OJG-POcOcOjA)
 
 <!--
 **HiHowAreYouSept83/HiHowAreYouSept83** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
