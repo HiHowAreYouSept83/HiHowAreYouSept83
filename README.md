@@ -4,7 +4,7 @@
 
 **Songs for the Deaf**
 
-[Niandra Lades and Usually Just a T-Shirt - John Frusciante](https://open.spotify.com/intl-pt/album/4wTLTb4VpQtTxmeyyFOFVj?si=GLPyLC6cSXynaVZpmq-h8Q)
+***[Niandra Lades and Usually Just a T-Shirt - John Frusciante](https://open.spotify.com/intl-pt/album/4wTLTb4VpQtTxmeyyFOFVj?si=GLPyLC6cSXynaVZpmq-h8Q)***
 
 [Here Comes Your Man - Pixies](https://open.spotify.com/album/29WKZM3pAn93NpOCAivGf7?si=4Zc2zxQ7QTWm9e4VlMaaSQ)
 
